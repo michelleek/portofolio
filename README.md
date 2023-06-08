@@ -1,2 +1,5 @@
-# This is made as a portofolio of Michelle Kurniawan
-# I would appreciate if you read this😄
+Hello 🙋🏻‍♀️👋🏻
+
+This is made as a portofolio of Michelle Kurniawan ✨
+
+You could get a new insight and I would very appreciate it if you read this😄
